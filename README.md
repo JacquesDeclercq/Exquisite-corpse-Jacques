@@ -36,6 +36,15 @@ Okay, he seems nice, I'll give him that. But the last contributors were kissing 
 (haha :D - correction)
 
 What if the answer of life is simple as 42. Not 41, not 43, just 42?
+
+Did you know that 6x7=42 ?! Outstanding move
+
+I am sure Jacques loves multiplications. 
+But less sure that Jacques is 42 ! 
+
+
+=======
 Did you know that 6x7=42 ?! Outstanding move (hmmm - correction)
 
 (Without fault)
+
