@@ -16,3 +16,6 @@ is pretty good at it !!!
 As he is a real PhotoShop Master, the 
 presentation looks exquisite. Lots of shiny things, 
 lots of nice colors. I like! 
+
+AS he is a nice storyteller! people will be enjoy his story very curiously!
+his AI topic will be very good helpful for his fellow coders and coders will use it.
