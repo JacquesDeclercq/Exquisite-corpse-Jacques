@@ -12,3 +12,7 @@ changed forever... Now he can code!!!
 Also, Jacques is enjoying giving a techtalk
 on AI topics to his fellows coders. And he
 is pretty good at it !!!
+
+As he is a real PhotoShop Master, the 
+presentation looks exquisite. Lots of shiny things, 
+lots of nice colors. I like! 
