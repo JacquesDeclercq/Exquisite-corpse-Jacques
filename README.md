@@ -17,6 +17,11 @@ As he is a real PhotoShop Master, the
 presentation looks exquisite. Lots of shiny things, 
 lots of nice colors. I like! 
 
+
 I am tall but not so tall.
 I am big but not so big.
 I am smart but, but no but.
+
+AS he is a nice storyteller! people will be enjoy his story very curiously!
+his AI topic will be very good helpful for his fellow coders and coders will use it.
+
