@@ -16,3 +16,9 @@ is pretty good at it !!!
 As he is a real PhotoShop Master, the 
 presentation looks exquisite. Lots of shiny things, 
 lots of nice colors. I like! 
+
+Jacques had a change of heart.
+Since he is all about open source software, he ditched photoshop
+and started working with *Krita*
+
+
